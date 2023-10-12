@@ -1,6 +1,9 @@
 Hi, I’m @Chvtte
+
 *V8 motor sounds*
-contact me at: 
+
+contact me at
+
 www.linkedin.com/in/gc2
 
 <!---
