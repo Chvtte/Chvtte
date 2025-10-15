@@ -4,7 +4,7 @@ Hi, I’m @Chvtte
 
 contact me at
 
-www.linkedin.com/in/gc2
+www.linkedin.com/in/guilhermecgc
 
 <!---
 Chvtte/Chvtte is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
